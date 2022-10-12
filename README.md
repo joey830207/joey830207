@@ -1,1 +1,1 @@
-I’m Joey from an island.
+Joey from an island.
